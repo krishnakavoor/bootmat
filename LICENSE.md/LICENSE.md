@@ -1,1 +1,1 @@
-free to use and redistribute
+Free to use and redistribute
